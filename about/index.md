@@ -18,7 +18,8 @@ date: 2016-05-25
 * Universitas   : [UIN Suska Riau](http://uin-suska.ac.id/)<br>
 
 ## Helloo....
+Sampurasuuuun...!!!!
 Saya Aan Nuraini anak kedua dari dua bersaudara. Gadis keturunan sunda tulen yang terlahir di tanah melayu Indragiri Hulu
     
-<center><h3> -Terima Kasih- </h3></center>
+<center><h3> -Hatur Nuhun...- </h3></center>
 
